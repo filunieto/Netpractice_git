@@ -1,1 +1,0 @@
-# Netpractice_git
